@@ -15,3 +15,13 @@ Confused about anything data? Then my writing, speaking, and storytelling skills
 - SQL
 
 ## Interest
+- 📖 Telling data stories that make an impact
+- 💻 Exploring new technology and tools 
+
+## Fun Facts
+- 📖 I'm an avid lover of politics and Economics
+- 📝 I love solving problems
+- ⚽️ I love football
+
+## Let's Connect 
+
