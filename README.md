@@ -24,4 +24,6 @@ Confused about anything data? Then my writing, speaking, and storytelling skills
 - ⚽️ I love football
 
 ## Let's Connect 
+(https://twitter.com/iam_noahjoseph)
+
 
